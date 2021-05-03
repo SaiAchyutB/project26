@@ -1,2 +1,4 @@
-# angryBirdsStage2.5
-Angry Birds stage 2.5 with Class Inheritance and Images
+
+Maggie Noodles
+
+TIMES FOODRECIPESVEGETABLE MASALA MAGGI NOODLES Vegetable Masala Maggi Noodles Recipe by TNNUpdated : Apr 21, 2021, 13:05 IST Avg. Rating Rate Comments (11) Facebook Twitter Pinit Vegetable Masala Maggi Noodles Total Time30mPrep Time10 mCalories185 Bookmark Add To Collection If you are looking for a spicy vegetable masala maggi recipe, we have the best one for you! Everyone likes to experiment with Maggi and has their own favourite versions. Here is an easy vegetable maggi masala recipe that you will love. Ready in a jiffy, this street style veg masala maggi takes the usual maggi masala noodles to the next level. The best part about this vegetable masala maggi recipe is that you can add any combination of veggies that you like and amp up the health value of the dish. From onion to capsicum and even tomato, the veggies are nicely sautéed to give them a spicy and juicy taste. Since maggi is loved by people of all generations, you don’t need to think twice while serving it to people of different age groups. 
